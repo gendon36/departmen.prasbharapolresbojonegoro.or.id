@@ -1,1 +1,0 @@
-# departmen.prasbharapolresbojonegoro.or.id
